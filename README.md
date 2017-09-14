@@ -1,6 +1,6 @@
 # X-Initiative
 
-L'inititive X est un centre de recherche spécialisé dans la recherche de phénomène inexpliqué.
+L'initiative X est un centre de recherche spécialisé dans la recherche de phénomène inexpliqué.
 
 09 Avril 1991, Montréal, Canada 
 
